@@ -1,1 +1,1 @@
-
+- I attempted going to tghe gym but it was short lived.
